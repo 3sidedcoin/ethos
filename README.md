@@ -16,6 +16,25 @@ If these policies sound like a culture that you want to contribute to and build,
 
 ***
 
+## The Job Post that started it all
+
+You will get your own time (and appropriate resources) to 
+
+* create side projects,   
+* write about the work,  
+* attend conferences, 
+* hold training sessions, 
+* present talks. 
+
+Benefits
+
+* Competitive salary and benefits
+* 3 weeks Paid holidays
+* Fun work environment
+* own books and library budget
+* Work at your own pace - and never overwork. 
+* We work 9-6. You don’t have to as long as you work healthy number of hours keeping the project on track. Some overlap with team’s working hours is required so everyone is on the same page. 
+
 ## Introduction
 
 ## Employment Policies
